@@ -1,5 +1,5 @@
 <!--~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~-->
-<h1 id="#trump-2025">Trump 2025 lies</h1>
+<h1 id="#trump-2026">Trump 2026 lies</h1>
 <h2>In a word mundacious</h2>
 <h3>Trump needs a brain stem</h3>
 <h2>Not Commander in Chief but America's 1st Commander in Queef</h2>
